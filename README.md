@@ -1,4 +1,4 @@
 # hello-world
 For random stuff
 
-I'm supposed to add some data about myself but i don't want to
+I'll update this one day... maybe
